@@ -1,0 +1,1 @@
+# Notes for work for AI for clients for finance
